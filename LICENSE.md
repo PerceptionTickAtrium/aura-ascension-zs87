@@ -1,4 +1,4 @@
-#  
+#  aura ascension Script exclusive is the best aura ascension Script, featuring fly and auto-collect. Safe and powerful for all your needs.
 
 
 
